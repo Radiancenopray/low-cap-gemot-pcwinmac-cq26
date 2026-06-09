@@ -1,4 +1,4 @@
-# 
+# Elite low cap gem sniper bot extensions for Mac OS | Updated low cap gem sniper bot extensions for PC Windows. Featuring event listeners and blockchain indexing — optimized for maximum performance on every platform.
 
 
 
